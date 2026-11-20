@@ -18,3 +18,5 @@ Craig Tucker (SP)
 
 Tom (eddsworld)
 
+Cosmo (Dandysworld)
+
