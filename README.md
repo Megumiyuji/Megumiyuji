@@ -21,3 +21,9 @@ Vee (DW)
 Tom (eddsworld)
 
 Shadow (STH)
+
+Fluttershy (Mlp)
+
+Funtime foxy (fnaf)
+
+Gf (fnf)
