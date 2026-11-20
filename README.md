@@ -20,3 +20,5 @@ Tom (eddsworld)
 
 Cosmo (Dandysworld)
 
+<img width="748" height="61" alt="IMG_0434" src="https://github.com/user-attachments/assets/9ff8a3fc-c073-4907-824f-49f7076291f5" />
+
