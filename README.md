@@ -7,3 +7,17 @@
 
 
 <div align="center"> <details> <summary> 影 </summary> ▓▓▓▓▓▓▓
+
+kins♡(੭´͈ ᐜ `͈)੭
+
+Megumi (JJK)
+
+Curse (Curseofx/Exe fandom)
+
+Craig Tucker (SP)
+
+Vee (DW)
+
+Tom (eddsworld)
+
+Shadow (STH)
